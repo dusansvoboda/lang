@@ -1,0 +1,231 @@
+Alle paar Jahre erobert ein neues (oder vermeintlich zeitloses) nordisches Konzept die Vorstellungskraft der fortschrittlichen und trendbewussten Europäer. Einige sind praktisch: Alfred Nobels Dynamit, Schwedens Wohlfahrtsstaat, IKEA's flach verpackte Möbel oder, einst, Nokias Telefone. Andere sind modisch oder metaphysisch. Die Dänen eroberten den Kontinent mit düsterem Kino, hochkarätiger Küche und zuletzt Hygge, einem gemütlichen Deko- und Lifestyle-Trend, der jeden Tag in Weihnachten zu verwandeln schien. Doch heutzutage sind die Europäer zu ängstlich für solch unschuldige Ablenkungen. Angesichts feindseliger Supermächte im Osten und Westen, chaotischer Politik, fragiler Wirtschaft und der Kriegsgefahr an ihren russischen Grenzen brauchen sie **stärkeres Material**.
+
+Kurz gesagt, es ist Zeit für einen neuen nordischen Trend. Glücklicherweise hat Finnland genau das Richtige: **Sisu** – eine Persönlichkeitseigenschaft oder Philosophie, die **innere Stärke, Ausdauer** und eine **"Wir schaffen das"-Einstellung** gegenüber Widrigkeiten kombiniert. Sie stammt aus einem Land, das viel durchgemacht hat. Zuerst von Schweden und dann von Russland regiert, erlangte Finnland erst 1917 die Unabhängigkeit und kämpfte zweimal gegen die Sowjetunion, um sie zu behalten. Heute macht seine 1350 km lange Grenze zu Russland es **verletzlich** für Wladimir Putins **wahnhaften Revanchismus**. Dennoch sind die Finnen nicht in Panik geraten: Tatsächlich zeigt eine internationale Studie, dass sie die **glücklichsten Menschen** der Welt sind. Die Finnen, bekannt für ihren **Stoizismus**, finden das **verwirrend**. Wenn wir die Glücklichsten sind, so ein lokales Sprichwort, wie schlecht muss es dann allen anderen gehen?
+
+Wenn die Ereignisse den Europäern das Gefühl geben, **hilflos und deprimiert** zu sein, würden die Finnen sagen, dass mehr **Sisu** nötig ist. Der Krieg in der Ukraine unterstreiche beispielsweise „die Bedeutung **psychologischer Widerstandsfähigkeit**“, sagt Annukka Ylivaara, die stellvertretende Leiterin des finnischen Nationalen Sicherheitsausschusses. Der Ausschuss bringt alle relevanten Ministerien und Behörden zusammen, um potenzielle Bedrohungen der finnischen Sicherheit zu planen. **Psychologische Widerstandsfähigkeit zu gewährleisten**, erklärt sie, bedeutet sicherzustellen, dass Finnen **mitten in einer Krise** weiterhin beten, Museen besuchen und Sport treiben können. Es bedeutet aber auch, die Bürger zu **befähigen**, selbst an der nationalen Verteidigung teilzunehmen, ihnen das Gefühl zu geben, **aktive Mitwirkende** an der Sicherheit des Landes zu sein.
+
+Das beginnt früh. An der Grund- und Mittelschule Jatkasaari in Helsinki ist an einem sonnigen Herbstmorgen **kein Elternteil in Sicht**. Kinder jeden Alters gehen oder fahren alleine mit dem Fahrrad zur Schule. Sie werden über „sichere Gesellschaft“ als eines von fünf Themen des Schuljahres unterrichtet. Für die Kleinsten bedeutet das **Sicherheitswanderungen** in der Nachbarschaft. Ältere Kinder lernen, **Online-Desinformationskampagnen zu erkennen**.
+
+Nach dem Abschluss unterliegen junge Männer der **Wehrpflicht**, und eine wachsende Zahl junger Frauen tritt **freiwillig** bei. Auf dem Militärstützpunkt Santahamina bei Helsinki verwendet ein **Trupp** von fünf Rekruten **Sprengstoff**, um eine Tür **aufzusprengen**. Auf die Frage, ob sie kämpfen würden, falls Russland einmarschiert, **zögert keiner**. Eine Umfrage zeigt, dass fast 80 % der Finnen **zu den Waffen greifen** würden, um ihr Land zu verteidigen – „selbst wenn der Ausgang **ungewiss** erscheint“, wie das Meinungsforschungsinstitut es ausdrückt, was ein wenig zusätzliches Sisu hinzufügt. Der Anteil ist in den meisten europäischen Ländern weitaus geringer und beträgt in Italien nur 14 %.
+
+Viele finnische Erwachsene besuchen derweil **mehrtägige** Sicherheitskurse. Das mag so aufregend klingen wie eine **Feuerübung**, aber tatsächlich handelt es sich um **Networking-Veranstaltungen nur auf Einladung** für die Elite des Landes, die Wege aufzeigen, wie sie und ihre Organisationen zur Sicherheit Finnlands beitragen können. **Alumni** treffen sich regelmäßig zu **Besprechungen**. Fragen Sie finnische Politik- oder Wirtschaftsführer, ob sie an einem teilgenommen haben, und sie bejahen dies in der Regel mit einem stolzen Lächeln. Sie geben Ihnen möglicherweise die Nummer ihrer Gruppe; eine niedrige Zahl bedeutet, dass Sie früh eingeladen wurden, was **prestigeträchtiger** ist. Es ist das lokale Äquivalent zur Erwähnung eines **Master-Abschlusses** von einer **schicken** Business School.
+
+Wenn man so gut **vorbereitet** ist wie die Finnen, ist es leicht, die Bedrohung durch Russland als **Tatsache des Lebens** zu akzeptieren – eine, der man, obwohl **besorgniserregend**, **begegnen und sie überwinden** kann. Die meisten anderen europäischen Länder sind jedoch noch nicht so weit. In den letzten zwei Monaten, als Flughäfen in Dänemark und Deutschland durch Drohnenüberflüge **getestet wurden** (russisch? Wer weiß?), forderten **aufgeregte** Politiker, die Eindringlinge abzuschießen. Dies erschien Alexander Stubb, dem Präsidenten Finnlands, als **unproduktiv**. „Ich denke, die finnische Einschätzung ist, niemals in Panik zu geraten“, sagte Herr Stubb Charlemagne. „Reagieren und handeln, wenn nötig.“ Was sein eigenes Sisu betrifft, sieht der 57-jährige Präsident, ein **Fitness-Fanatiker**, bereit aus, persönlich in **feindliche Gräben** zu stürmen, sollte die Notwendigkeit entstehen.
+
+Der finnische Nationalcharakter und seine historischen Erfahrungen **können nicht einfach an andere Orte übertragen werden**. Das ließ Charlemagne sich fragen, wo sein eigenes Sisu zu finden sei. Um Hilfe bat er Elisabet Lahti, die Autorin eines Buches über das Konzept. „Die Idee ist nicht, Sisu zu finden, es ist nicht verloren“, erklärt sie. Sie empfiehlt, sich an **Momente von Sisu** im eigenen Leben zu **erinnern** und daran, was es ermöglicht hat, **Schwierigkeiten zu überwinden**. Die Europäische Union könnte sich daran erinnern, wie sie sich bei früheren Notfällen wie der Eurokrise, dem Brexit und der Covid-Pandemie **zusammengerauft** hat und welche Schritte sie unternommen hat (Hilfe für die Ukraine, Sanktionen gegen Russland), um **sich aus der aktuellen herauszukämpfen**.
+
+**Ruhe bewahren und lernen, beim Skifahren zu schießen**
+
+Dies erfordert jedoch den Glauben, dass es sich lohnt, dafür zu kämpfen. Die Finnen sind ein **patriotisches Völkchen**. „Wir haben diese Nation in den letzten hundert Jahren zu einem **großartigen Staat** aufgebaut“, sagt Frau Lahti und betont, dass dies eine **Erfolgsgeschichte** mit einem starken Wohlfahrtssystem ist. Finnland war nicht immer reich und sicher. „Schäme dich nie deiner Armut; sei ruhig, sei froh, sei frei“, **ermahnt** das Nationalgedicht „Maamme“ („Unser Land“), das im 19. Jahrhundert geschrieben wurde. Die Finnen sind nicht mehr arm (obwohl sie immer noch ziemlich **schüchtern** sind), aber sie sind weniger **selbstgefällig** in ihrem Reichtum als Länder weiter im Westen. Auch für andere Europäer wird die **Kultivierung** von Sisu bedeuten, die Geschichte zu **feiern**, wie sie wohlhabend und sicher wurden. Wenn sie das bleiben wollen, haben sie noch viel zu tun. ■
+
+**Tous les quelques années**, un nouveau concept nordique (ou supposé **intemporel**) vient **saisir l'imagination** des Européens avant-gardistes et branchés. Certains sont pratiques : pensez à la dynamite d'Alfred Nobel, à l'État-providence suédois, aux **meubles à plat** d'IKEA ou, il y a un temps, aux téléphones Nokia. D'autres sont **à la mode ou métaphysiques**. Les Danois ont **conquis le continent** avec un cinéma grinçant, une cuisine **élevée** et plus récemment le *hygge*, un engouement pour la **décoration mêlé à un style de vie** qui semblait transformer chaque jour en Noël. Mais de nos jours, les Européens sont trop **anxieux** pour de telles **innocentes distractions**. Face aux superpuissances hostiles à l'est et à l'ouest, à la politique chaotique, aux économies **fragiles** et à la menace de guerre à leurs frontières russes, ils ont besoin de quelque chose de **plus fort**.
+
+Bref, **il est temps pour une nouvelle tendance nordique**. Heureusement, la Finlande a exactement ce qu'il faut : **sisu** – un trait de personnalité ou une philosophie combinant **force intérieure, persévérance** et une attitude **« on peut le faire »** face à l'**adversité**. Elle vient d'un pays qui a beaucoup traversé. Dirigée d'abord par la Suède, puis par la Russie, la Finlande n'a obtenu son indépendance qu'en 1917 et a combattu l'Union soviétique deux fois pour la conserver.
+
+Aujourd'hui, sa frontière de 1 350 km avec la Russie la rend **vulnérable** au **revanchisme délirant** de Vladimir Poutine. Pourtant, les Finlandais n'ont pas paniqué : en effet, une étude internationale montre qu'ils sont les **plus heureux du monde**. Les Finlandais, largement connus pour leur **stoïcisme**, trouvent cela **déroutant**. Si nous sommes les plus heureux, selon un **refrain** local, à quel point tous les autres doivent-ils aller mal ?
+
+Si les événements donnent aux Européens le sentiment d'être **impuissants et déprimés**, les Finlandais pourraient dire qu'il faut plus de *sisu*. La guerre en Ukraine, par exemple, souligne « l'importance de la **résilience psychologique** », déclare Annukka Ylivaara, la chef adjointe du comité de sécurité nationale finlandais. Le comité rassemble tous les ministères et agences concernés pour planifier les menaces potentielles à la sécurité finlandaise. **Garantir la résilience psychologique**, explique-t-elle, signifie s'assurer que les Finlandais peuvent toujours prier, visiter des musées et faire du sport **au milieu d'une crise**. Mais cela signifie aussi **responsabiliser** les citoyens à participer eux-mêmes à la défense nationale, en leur donnant le sentiment d'être des **contributeurs actifs** à la sécurité du pays.
+
+Cela commence tôt. À l'école primaire et secondaire Jatkasaari à Helsinki, un matin d'automne ensoleillé, **aucun parent n'est en vue**. Les enfants de tous âges marchent ou font du vélo seuls jusqu'à l'école. Ils sont informés sur la « société sûre » comme l'un des cinq thèmes de l'année scolaire. Pour les tout-petits, cela signifie des **promenades de sécurité** dans le quartier. Les enfants plus âgés apprennent à **identifier les campagnes de désinformation en ligne**.
+
+Après l'obtention du diplôme, les jeunes hommes sont soumis à la **conscription militaire**, et un nombre croissant de jeunes femmes **s'engagent volontairement**. Sur la base militaire de Santahamina près d'Helsinki, une **escouade** de cinq recrues utilise des **explosifs** pour **faire sauter une porte**. Interrogé sur leur volonté de se battre si la Russie envahissait, **aucun n'hésite**. Un sondage montre que près de 80 % des Finlandais **prendraient les armes** pour défendre leur pays — « même si le résultat semblait **incertain** », comme le dit l'institut de sondage, ajoutant un peu de *sisu* supplémentaire. La proportion dans la plupart des pays européens est beaucoup plus faible et n'est que de 14 % en Italie.
+
+De nombreux adultes finlandais suivent, quant à eux, des cours de sécurité **pluriannuels**. Ils peuvent sembler aussi excitants qu'un **exercice d'incendie**, mais ce sont en fait des **événements de réseautage sur invitation seulement** pour l'élite du pays, promouvant les moyens par lesquels eux et leurs organisations peuvent aider à maintenir la Finlande en sécurité. Les **anciens élèves** se réunissent périodiquement pour des **rassemblements**. Demandez aux leaders politiques ou commerciaux finlandais s'ils y ont participé et ils répondent généralement par l'affirmative, avec un fier sourire. Ils peuvent vous donner le numéro de leur groupe ; un nombre faible signifie que vous avez été invité tôt, ce qui est **plus prestigieux**. C'est l'équivalent local de mentionner un **master** d'une **grande** école de commerce.
+
+Lorsque l'on est aussi bien **préparé** que les Finlandais, il est facile d'accepter la menace de la Russie comme une **réalité de la vie** — une menace à laquelle, bien que **préoccupante**, on peut **faire face et la surmonter**. La plupart des autres pays européens, cependant, ne sont pas aussi avancés. Au cours des deux derniers mois, alors que les aéroports au Danemark et en Allemagne étaient **mis à l'épreuve par des incursions** de drones (russes ? Qui sait ?), des politiciens **excités** ont appelé à abattre les intrus.
+
+Cela a semblé **improductif** à Alexander Stubb, le président finlandais. « Je pense que l'évaluation finlandaise est de ne jamais paniquer », a déclaré M. Stubb à Charlemagne. « Réagir et agir lorsque cela est nécessaire. » Quant à son propre *sisu*, le président de 57 ans, **fanatique de la forme physique**, semble prêt à **se précipiter personnellement dans les tranchées** ennemies, si le besoin s'en faisait sentir.
+
+Le caractère national et les expériences historiques de la Finlande **ne peuvent pas être simplement transplantés** ailleurs. Cela a laissé Charlemagne se demander où son propre *sisu* pouvait être trouvé. Pour obtenir de l'aide, il a consulté Elisabet Lahti, l'auteure d'un livre sur le concept. « L'idée n'est pas de trouver le *sisu*, il n'est pas perdu », explique-t-elle. Elle recommande de **« se souvenir des moments de sisu** dans votre vie et de ce qui vous a permis de **surmonter les difficultés** ».
+
+L'Union européenne pourrait se souvenir de la façon dont elle s'est **ressaisie** lors des urgences passées, telles que la crise de l'euro, le Brexit et la pandémie de Covid-19, et des mesures qu'elle a prises (aide à l'Ukraine, sanctions contre la Russie) pour **se sortir** de la crise actuelle.
+
+**Gardez votre calme et apprenez à tirer à ski**
+
+Cependant, cela nécessite de croire qu'il y a quelque chose pour lequel il vaut la peine de se battre. Les Finlandais sont un **peuple patriotique**. « Nous avons construit cette nation en un **magnifique État** au cours des cent dernières années », dit Mme Lahti, soulignant que c'est une **histoire de succès** avec un système de protection sociale solide. La Finlande n'a pas toujours été riche et sûre. « Ne rougis jamais de ta pauvreté ; sois calme, sois joyeux, sois libre », **admoneste** le poème national, « Maamme » (Notre Terre), écrit au XIXe siècle.
+
+Les Finlandais ne sont plus pauvres (bien qu'ils soient encore assez **timides**), mais ils sont moins **suffisants** dans leur richesse que les pays plus à l'ouest. Pour les autres Européens aussi, **cultiver** le *sisu* signifiera **célébrer** l'histoire de la façon dont ils sont devenus prospères et sûrs. S'ils veulent le rester, ils ont beaucoup à faire. ■
+
+
+**Ogni pochi anni**, un qualche concetto nordico nuovo (o apparentemente **atavico**) si presenta per **catturare l'immaginazione** degli europei lungimiranti e alla moda. Alcuni sono **pratici**: pensate alla dinamite di Alfred Nobel, allo stato sociale svedese, ai **mobili imballati piatti** di IKEA o, un tempo, ai telefoni Nokia. Altri sono **di moda o metafisici**. I danesi hanno **conquistato il continente** con film crudi, cucina **d'alta scuola** e, più recentemente, l'*hygge*, una mania per l'**arredamento abbinata a uno stile di vita** che sembrava trasformare ogni giorno in Natale. Ma in questi giorni, gli europei sono troppo **ansiosi** per tali **distrazioni innocenti**. Di fronte a superpotenze ostili a est e ovest, politica caotica, economie **fragili** e la minaccia di guerra ai loro confini russi, hanno bisogno di qualcosa di **più solido**.
+
+In breve, **è tempo per una nuova tendenza nordica**. Fortunatamente, la Finlandia ha proprio quello che serve: **sisu** – un tratto di personalità o una filosofia che combina **forza interiore, perseveranza** e un atteggiamento **"ce la possiamo fare"** di fronte alle **avversità**. Proviene da un paese che ne ha passate tante. Governata prima dalla Svezia e poi dalla Russia, la Finlandia ha ottenuto l'indipendenza solo nel 1917 e ha combattuto l'Unione Sovietica due volte per mantenerla.
+
+Oggi, il suo confine lungo 1.350 km con la Russia la rende **vulnerabile** al **revanscismo delirante** di Vladimir Putin. Eppure i finlandesi non sono andati nel panico: anzi, uno studio internazionale mostra che sono le **persone più felici** del mondo. I finlandesi, ampiamente noti per il loro **stoicismo**, lo trovano **strano**. Se siamo i più felici, dice un **ritornello** locale, quanto male devono stare tutti gli altri?
+
+Se gli eventi fanno sentire gli europei **indifesi e depressi**, i finlandesi potrebbero dire che è necessario più *sisu*. La guerra in Ucraina, ad esempio, sottolinea «l'importanza della **resilienza psicologica**», afferma Annukka Ylivaara, la vicecapo del comitato di sicurezza nazionale finlandese. Il comitato riunisce tutti i ministeri e le agenzie pertinenti per pianificare potenziali minacce alla sicurezza finlandese. **Garantire la resilienza psicologica**, spiega, significa garantire che i finlandesi possano ancora pregare, visitare musei e fare sport **nel mezzo di una crisi**. Ma significa anche **responsabilizzare** i cittadini a prendere parte alla difesa nazionale da soli, facendoli sentire **contributori attivi** alla sicurezza del Paese.
+
+Inizia presto. Nella scuola primaria e media Jatkasaari a Helsinki, in una soleggiata mattina d'autunno, **non si vede un genitore**. I bambini di tutte le età vanno a piedi o in bicicletta a scuola da soli. Vengono istruiti sulla «società sicura» come uno dei cinque temi dell'anno scolastico. Per i più piccoli, ciò significa **passeggiate sulla sicurezza** nel quartiere. I bambini più grandi imparano a **identificare le campagne di disinformazione online**.
+
+Dopo il diploma, i giovani uomini sono soggetti alla **coscrizione militare**, e un numero crescente di giovani donne si unisce **volontariamente**. Nella base militare di Santahamina, fuori Helsinki, una **squadra** di cinque reclute usa **esplosivi** per **aprire una porta**. Alla domanda se combatterebbero se la Russia invadesse, **nessuno esita**. Un sondaggio mostra che quasi l'80% dei finlandesi **prenderebbe le armi** per difendere il proprio Paese – «anche se l'esito sembrava **incerto**», come afferma il sondaggista, aggiungendo un po' di *sisu* in più. La percentuale nella maggior parte dei Paesi europei è molto più bassa ed è solo del 14% in Italia.
+
+Molti adulti finlandesi, nel frattempo, frequentano corsi di sicurezza **pluriennali**. Questi potrebbero sembrare eccitanti quanto un'**esercitazione antincendio**, ma in realtà sono **eventi di *networking* su invito** per l'élite del Paese, che promuovono modi per loro e le loro organizzazioni per aiutare a mantenere la Finlandia al sicuro. Gli **alunni** si riuniscono periodicamente per **incontri**. Chiedete ai leader politici o aziendali finlandesi se ne hanno frequentato uno e generalmente rispondono di sì, con un sorriso orgoglioso. Potrebbero darvi il numero del loro gruppo; un numero basso significa che siete stati invitati presto, il che è **più prestigioso**. È l'equivalente locale di menzionare un **master** di una **prestigiosa** scuola di *business*.
+
+Quando si è così ben **preparati** come i finlandesi, è facile accettare la minaccia della Russia come una **realtà della vita** – una che, sebbene **preoccupante**, può essere **affrontata e superata**. La maggior parte degli altri Paesi europei, tuttavia, non è così avanti. Negli ultimi due mesi, mentre gli aeroporti in Danimarca e Germania venivano **messi alla prova da incursioni** di droni (russi? Chi lo sa?), politici **eccitati** hanno chiesto di abbattere gli intrusi.
+
+Ciò è sembrato **improduttivo** ad Alexander Stubb, il presidente della Finlandia. «Penso che la valutazione finlandese sia di non farsi mai prendere dal panico», ha detto Stubb a Charlemagne. «Reagire e agire quando necessario.» Per quanto riguarda il suo *sisu*, il presidente di 57 anni, **fanatico del *fitness***, sembra pronto a **caricare personalmente le trincee** nemiche, se dovesse sorgere la necessità.
+
+Il carattere nazionale e le esperienze storiche della Finlandia **non possono essere semplicemente trapiantati** altrove. Ciò ha lasciato Charlemagne a chiedersi dove potesse trovare il suo *sisu*. Per aiuto, ha consultato Elisabet Lahti, l'autrice di un libro sul concetto. «L'idea non è trovare il *sisu*, non è perso», spiega. Raccomanda di «**ricordare i momenti di sisu** nella tua vita e ciò che ti ha permesso di **superare le difficoltà**».
+
+L'Unione Europea potrebbe ricordare come **si è ricomposta** durante le passate emergenze, come la crisi dell'euro, la Brexit e la pandemia di Covid-19, e i passi che ha compiuto (aiuti all'Ucraina, sanzioni alla Russia) per **uscire** da quella attuale.
+
+**Mantenete la calma e imparate a sparare mentre sciate**
+
+Tuttavia, ciò richiede di credere che ci sia qualcosa per cui valga la pena lottare. I finlandesi sono un **popolo patriottico**. «Abbiamo costruito questa nazione in un **magnifico Stato** negli ultimi cento anni», afferma la signora Lahti, sottolineando che è una **storia di successo** con un forte sistema di *welfare*. La Finlandia non è sempre stata ricca e sicura. «Non vergognarti mai della tua povertà; sii calmo, sii felice, sii libero», **ammonisce** la poesia nazionale, «Maamme» («La nostra terra»), scritta nel 1800.
+
+I finlandesi non sono più poveri (anche se sono ancora piuttosto **timidi**), ma sono meno **autocompiaciuti** nella loro ricchezza rispetto ai Paesi più a ovest. Anche per gli altri europei, **coltivare** il *sisu* significherà **celebrare** la storia di come sono diventati prosperi e sicuri. Se vogliono rimanere tali, hanno molto da fare. ■
+
+
+
+Русский (Russian)
+
+Čeština (Czech)
+
+Каждые несколько лет какая-нибудь новая (или якобы старая) скандинавская концепция захватывает воображение прогрессивных и модных европейцев. Некоторые практичны: подумайте о динамите Альфреда Нобеля, шведском государстве всеобщего благосостояния, плоскоупакованной мебели IKEA или, когда-то, о телефонах Nokia.
+
+Každých pár let se objeví nějaký nový (nebo údajně starý) severský koncept, který uchvátí představivost pokrokových a trendy Evropanů. Některé jsou praktické: vzpomeňte na dynamit Alfreda Nobela, švédský sociální stát, nábytek s plochým balením IKEA nebo, kdysi, telefony Nokia.
+
+Другие модны или метафизичны. Датчане завоевали континент мрачным кино, высокоинтеллектуальной кухней и, совсем недавно, hygge, уютным увлечением декорированием, совмещенным с образом жизни, которое, казалось, превращало каждый день в Рождество. Но в наши дни европейцы слишком встревожены для таких невинных отвлечений. Столкнувшись с враждебными сверхдержавами на востоке и западе, хаотичной политикой, хрупкой экономикой и угрозой войны на российских границах, им нужно что-то покрепче.
+
+Jiné jsou módní nebo metafyzické. Dánové dobyli kontinent drsným filmem, vznešenou kuchyní a nejnověji hygge, útulným dekoratérským šílenstvím spojeným se životním stylem, které, zdá se, proměnilo každý den v Vánoce. Ale v dnešní době jsou Evropané příliš úzkostliví pro takové nevinné rozptýlení. Tváří v tvář nepřátelským supervelmocem na východě a západě, chaotické politice, křehkým ekonomikám a hrozbě války na ruských hranicích potřebují něco silnějšího.
+
+Короче говоря, пришло время для новой скандинавской тенденции. К счастью, у Финляндии есть то, что нужно: sisu — черта характера или философия, сочетающая внутреннюю силу, настойчивость и отношение «мы сможем это сделать» к невзгодам. Она исходит из страны, которая через многое прошла. Управляемая сначала Швецией, а затем Россией, Финляндия получила независимость только в 1917 году и дважды воевала с Советским Союзом, чтобы сохранить ее.
+
+Stručně řečeno, je čas na nový severský trend. Naštěstí Finsko má přesně to: sisu — osobnostní rys nebo filozofie kombinující vnitřní sílu, vytrvalost a „to zvládneme“ přístup k protivenstvím. Pochází ze země, která si mnohým prošla. Vládnuto nejprve Švédskem a poté Ruskem, Finsko získalo nezávislost až v roce 1917 a dvakrát bojovalo se Sovětským svazem, aby si ji udrželo.
+
+Сегодня ее граница с Россией протяженностью 1350 км делает ее уязвимой для бредового реваншизма Владимира Путина. Тем не менее, финны не паникуют: на самом деле, международное исследование показывает, что они — самые счастливые люди в мире. Финны, широко известные своим стоицизмом, находят это забавным. «Если мы самые счастливые, — гласит местный рефрен, — то насколько же плохо должно быть всем остальным?»
+
+Dnes její 1350 km dlouhá hranice s Ruskem ji činí zranitelnou vůči bludnému revanšismu Vladimira Putina. Finové však nepanikařili: mezinárodní studie skutečně ukazuje, že jsou nejšťastnějšími lidmi na světě. Finové, široce známí svým stoicismem, to považují za matoucí/zarážející. „Jestliže jsme nejšťastnější, — říká se v místním refrénu, — jak špatně se musí mít všichni ostatní?“
+
+Если события заставляют европейцев чувствовать себя беспомощными и подавленными, финны могли бы сказать, что им нужно больше sisu. Война на Украине, например, подчеркивает «важность психологической устойчивости», — говорит Аннукка Иливаара, заместитель главы финского комитета по национальной безопасности. Комитет объединяет все соответствующие министерства и агентства для планирования потенциальных угроз финской безопасности.
+
+Jestliže se Evropané kvůli událostem cítí bezmocní a deprimovaní, Finové by mohli říci, že je potřeba více sisu. Válka na Ukrajině například zdůrazňuje „důležitost psychologické odolnosti“, — říká Annukka Ylivaara, zástupkyně šéfa finského výboru pro národní bezpečnost. Výbor sdružuje všechna příslušná ministerstva a agentury, aby plánovaly potenciální hrozby pro finskou bezpečnost.
+
+Гарантировать психологическую устойчивость, объясняет она, означает обеспечение того, чтобы финны могли по-прежнему молиться, посещать музеи и заниматься спортом во время кризиса. Но это также означает расширение прав и возможностей граждан для участия в национальной обороне, заставляя их чувствовать себя активными вкладчиками в безопасность страны.
+
+Zaručit psychologickou odolnost, vysvětluje, znamená zajistit, aby se Finové mohli stále modlit, navštěvovat muzea a sportovat uprostřed krize. Ale znamená to také posílení pravomocí občanů, aby se sami účastnili národní obrany, což jim dává pocit, že jsou aktivními přispěvateli k bezpečnosti země.
+
+Это начинается рано. В начальной и средней школе Яткасаари в Хельсинки солнечным осенним утром родителей не видно. Дети всех возрастов ходят пешком или ездят на велосипеде в школу одни. Их обучают «безопасному обществу» как одной из пяти тем учебного года. Для малышей это означает безопасные прогулки по окрестностям. Дети постарше учатся выявлять кампании по дезинформации в Интернете.
+
+Začíná to brzy. Na základní a střední škole Jatkasaari v Helsinkách slunečného podzimního rána není vidět žádný rodič. Děti všech věkových kategorií chodí pěšky nebo jezdí do školy samy. Jsou vyučovány o „bezpečné společnosti“ jako jednom z pěti témat školního roku. Pro nejmenší to znamená bezpečné procházky po okolí. Starší děti se učí identifikovat online dezinformační kampaně.
+
+После окончания учебы молодые люди подлежат обязательной военной службе, и все больше молодых женщин добровольно присоединяются. На военной базе Сантахамина под Хельсинки отряд из пяти новобранцев использует взрывчатку, чтобы взорвать дверь. На вопрос, будут ли они сражаться в случае вторжения России, никто не колеблется.
+
+Po ukončení studia podléhají mladí muži vojenské branné povinnosti a stále více mladých žen se připojuje dobrovolně. Na vojenské základně Santahamina u Helsinek používá četa pěti rekrutů výbušniny, aby odpálila dveře. Na otázku, zda by bojovali v případě invaze Ruska, ani jeden neváhá.
+
+Опрос показывает, что почти 80 % финнов возьмут в руки оружие для защиты своей страны — «даже если исход казался неопределенным», как выразился социолог, добавив немного дополнительного sisu. Доля в большинстве европейских стран гораздо ниже, а в Италии составляет всего 14 %.
+
+Průzkum ukazuje, že téměř 80 % Finů vezme do rukou zbraně k obraně své země — „i kdyby výsledek vypadal nejistě“, jak uvádí tazatel, přidávajíc trochu extra sisu. Podíl ve většině evropských zemí je mnohem nižší a v Itálii činí pouze 14 %.
+
+Многие взрослые финны тем временем посещают многодневные курсы безопасности. Они могут показаться такими же захватывающими, как и пожарная тревога, но на самом деле это сетевые мероприятия только по приглашениям для элиты страны, пропагандирующие способы, которыми они и их организации могут помочь сохранить Финляндию в безопасности.
+
+Mnoho dospělých Finů mezitím navštěvuje vícedenní bezpečnostní kurzy. Ty mohou znít stejně vzrušující jako požární cvičení, ale ve skutečnosti se jedná o networkingové akce pouze na pozvání pro elitu země, které propagují způsoby, jak mohou oni a jejich organizace pomoci udržet Finsko v bezpečí.
+
+Выпускники периодически собираются на совещания (pow-wows). Спросите финских политических или деловых лидеров, были ли они на одном из них, и они, как правило, ответят утвердительно, с гордой улыбкой. Они могут назвать вам номер своей группы; низкое число означает, что вас пригласили рано, что более престижно. Это местный эквивалент упоминания степени магистра престижной бизнес-школы.
+
+Absolventi se pravidelně scházejí na setkáních (pow-wows). Zeptejte se finských politických nebo obchodních lídrů, zda na nějakém byli, a obecně vám odpoví kladně, s hrdým úsměvem. Mohou vám sdělit číslo své skupiny; nízké číslo znamená, že jste byli pozváni brzy, což je prestižnější. Je to místní ekvivalent zmínky o magisterském titulu z luxusní obchodní školy.
+
+Когда человек так хорошо подготовлен, как финны, легко принять угрозу со стороны России как факт жизни — который, хотя и вызывает беспокойство, можно встретить и преодолеть. Однако большинство других европейских стран не зашли так далеко. В последние два месяца, когда аэропорты в Дании и Германии были проверены вторжениями беспилотников (российских? кто знает?), возбужденные политики призывали сбивать нарушителей.
+
+Když je člověk tak dobře připraven, jako Finové, je snadné přijmout hrozbu z Ruska jako fakt života — který, i když znepokojuje, lze čelit a překonat. Většina ostatních evropských zemí však není tak daleko. V posledních dvou měsících, kdy byla letiště v Dánsku i Německu testována vpády dronů (ruských? kdo ví?), rozčilení politici vyzývali ke sestřelení narušitelů.
+
+Это показалось Александру Стуббу, президенту Финляндии, непродуктивным. «Я думаю, что финская оценка — никогда не паниковать», — сказал г-н Стубб Карлу Великому. «Реагировать и действовать, когда это необходимо». Что касается его собственного sisu, 57-летний президент, помешанный на физической подготовке, выглядит готовым лично броситься во вражеские окопы, если возникнет такая необходимость.
+
+Alexanderu Stubbovi, prezidentovi Finska, se to zdálo neproduktivní. „Myslím, že finské hodnocení je nikdy nepanikařit,“ řekl pan Stubb Charlemagne. „Reagovat a jednat, když je to nutné.“ Co se касается его собственного sisu, 57letý prezident, fanatik fyzické kondice, vypadá, že je připraven osobně vrazit do nepřátelských zákopů, pokud by to bylo nutné.
+
+Национальный характер Финляндии и ее исторический опыт не могут быть просто перенесены в другое место. Это заставило Карла Великого задуматься, где можно найти его собственное sisu. За помощью он обратился к Элизабет Лахти, автору книги о концепции. «Идея не в том, чтобы найти sisu, оно не потеряно», — объясняет она. Она рекомендует «вспоминать моменты sisu в вашей жизни и то, что позволило вам преодолеть трудности».
+
+Finský národní charakter a jeho historické zkušenosti nemohou být jen tak přeneseny jinam. To přimělo Charlemagne přemýšlet, kde by se mohlo najít jeho vlastní sisu. Pro pomoc se obrátil na Elisabet Lahti, autorku knihy o tomto konceptu. „Cílem není najít sisu, není ztraceno,“ vysvětluje. Doporučuje „vzpomínat na okamžiky sisu ve svém životě a na to, co vám umožnilo překonat obtíže“.
+
+Европейский Союз мог бы вспомнить, как он собрался с силами во время прошлых чрезвычайных ситуаций, таких как кризис евро, Брексит и пандемия covid-19, и шаги, которые он предпринял (помощь Украине, санкции против России), чтобы выбраться из нынешнего кризиса.
+
+Evropská unie by si mohla vzpomenout, jak se vzpamatovala během minulých mimořádných událostí, jako je eurokrize, Brexit a pandemie covid-19, a kroky, které podnikla (pomoc Ukrajině, sankce proti Rusii), aby se vybojovala ze současné krize.
+
+Сохраняйте спокойствие и учитесь стрелять на лыжах
+
+Zachovejte klid a naučte se střílet na lyžích
+
+Однако для этого нужно верить, что есть за что бороться. Финны — патриотичный народ. «Мы построили эту нацию за последние сто лет в великолепное государство», — говорит г-жа Лахти, подчеркивая, что с сильной системой социального обеспечения. Этот история успеха имеет значение. Финляндия не всегда была богатой и безопасной. «Не стыдись своей бедности, будь спокоен, радуйся, будь свободен», — предостерегает национальная поэма «Маамме» («Наша земля»), написанная в 1800-х годах.
+
+Nicméně, to vyžaduje věřit, že je za co bojovat. Finové jsou vlastenecký národ. „Postavili jsme tento národ za posledních sto let ve velkolepý stát,“ říká paní Lahti, zdůrazňujíc, že se silným systémem sociálního zabezpečení. Tento příběh úspěchu je důležitý. Finsko nebylo vždy bohaté a bezpečné. „Nestyd se za svou chudobu, buď klidný, radostný, buď svobodný,“ napomíná národní báseň „Maamme“ (Naše země), napsaná v 19. století.
+
+Финны больше не бедны (хотя они все еще довольно застенчивы), но они менее самодовольны в своем богатстве, чем страны дальше на запад. Для других европейцев культивирование sisu будет означать прославление истории о том, как они стали процветающими и безопасными. Если они хотят такими и оставаться, им предстоит многое сделать. ■
+
+Finové již nejsou chudí (ačkoli jsou stále poměrně plaší), ale jsou méně samolibí ve svém bohatství než země dále na západ. Pro ostatní Evropany bude kultivování sisu znamenat oslavování příběhu o tom, jak se stali prosperujícími a bezpečnými. Pokud takovými chtějí zůstat, mají hodně co dělat. ■
+
+
+Hrvatski (Croatian)
+
+Čeština (Czech)
+
+Svakih nekoliko godina neki novi (ili navodno davno poznati) nordijski koncept zaokupi maštu europskih naprednih i trendi ljudi. Neki su praktični: sjetite se dinamita Alfreda Nobela, švedske države blagostanja, ravno pakiranog namještaja IKEA-e ili, nekada, Nokijinih telefona.
+
+Každých pár let se objeví nějaký nový (nebo údajně starý) severský koncept, který uchvátí představivost pokrokových a trendy Evropanů. Některé jsou praktické: vzpoměňte na dynamit Alfreda Nobela, švédský sociální stát, nábytek s plochým balením IKEA nebo, kdysi, telefony Nokia.
+
+Drugi su pomodni ili metafizički. Danci su osvojili kontinent grubim kinom, uzvišenom kuhinjom i, najnovije, hyggeom, ugodnim ludilom za uređenje interijera u kombinaciji sa stilom života, koje je, čini se, svaki dan pretvaralo u Božić. Ali ovih dana, Europljani su previše tjeskobni za takve nevine distrakcije. Suočeni s neprijateljskim supersilama na istoku i zapadu, kaotičnom politikom, krhkim ekonomijama i prijetnjom rata na svojim ruskim granicama, trebaju nešto jače.
+
+Jiné jsou módní nebo metafyzické. Dánové dobyli kontinent drsným filmem, vznešenou kuchyní a nejnověji hygge, útulným dekoratérským šílenstvím spojeným se životním stylem, které, zdá se, proměnilo každý den v Vánoce. Ale v dnešní době jsou Evropané příliš úzkostliví pro takové nevinné rozptýlení. Tváří v tvář nepřátelským supervelmocem na východu a západě, chaotické politice, křehkým ekonomikám a hrozbě války na ruských hranicích potřebují něco silnějšího.
+
+Ukratko, vrijeme je za novi nordijski trend. Srećom, Finska ima pravu stvar: sisu — osobnostna osobina ili filozofija koja kombinira unutarnju snagu, ustrajnost i stav „može se“ prema nepovoljnim okolnostima. Dolazi iz zemlje koja je puno toga prošla. Vladana prvo Švedskom, a zatim Rusijom, Finska je stekla neovisnost tek 1917. godine i dva puta se borila sa Sovjetskim Savezom da je zadrži.
+
+Stručně řečeno, je čas na nový severský trend. Naštěstí Finsko má přesně to: sisu — osobnostní rys nebo filozofie kombinující vnitřní sílu, vytrvalost a „to zvládneme“ přístup k protivenstvím. Pochází ze země, která si mnohým prošla. Vládnuto nejprve Švédskem a poté Ruskem, Finsko získalo nezávislost až v roce 1917 a dvakrát bojovalo se Sovětským svazem, aby si ji udrželo.
+
+Danas je njezina granica s Rusijom duga 1350 km čini ranjivom na zabludjeli revanšizam Vladimira Putina. Ipak, Finci nisu paničarili: međunarodno istraživanje pokazuje da su oni najsretniji ljudi na svijetu. Finci, naširoko poznati po svom stoicizmu, to smatraju zbunjujućim. „Ako smo mi najsretniji,“ kaže lokalni refren, „kako se loše moraju osjećati svi ostali?“
+
+Dnes její 1350 km dlouhá hranice s Ruskem ji činí zranitelnou vůči bludnému revanšismu Vladimira Putina. Finové však nepanikařili: mezinárodní studie skutečně ukazuje, že jsou nejšťastnějšími lidmi na světě. Finové, široce známí svým stoicismem, to považují za matoucí/zarážející. „Jestliže jsme nejšťastnější, — říká se v místním refrénu, — jak špatně se musí mít všichni ostatní?“
+
+Ako događaji čine da se Europljani osjećaju bespomoćno i depresivno, Finci bi rekli, potrebno je više sisu. Rat u Ukrajini, na primjer, naglašava „važnost psihološke otpornosti“, kaže Annukka Ylivaara, zamjenica šefa finskog odbora za nacionalnu sigurnost. Odbor okuplja sva relevantna ministarstva i agencije radi planiranja potencijalnih prijetnji finskoj sigurnosti.
+
+Jestliže se Evropané kvůli událostem cítí bezmocní a deprimovaní, Finové by mohli říci, že je potřeba více sisu. Válka na Ukrajině například zdůrazňuje „důležitost psychologické odolnosti“, — říká Annukka Ylivaara, zástupkyně šéfa finského výboru pro národní bezpečnost. Výbor sdružuje všechna příslušná ministerstva a agentury, aby plánovaly potenciální hrozby pro finskou bezpečnost.
+
+Jamčenje psihološke otpornosti, objašnjava ona, znači osigurati da se Finci i dalje mogu moliti, posjećivati muzeje i baviti se sportom usred krize. Ali to također znači osnaživanje građana da sami sudjeluju u nacionalnoj obrani, čineći da se osjećaju aktivnim doprinositeljima sigurnosti zemlje.
+
+Zaručit psychologickou odolnost, vysvětluje, znamená zajistit, aby se Finové mohli stále modlit, navštěvovat muzea a sportovat uprostřed krize. Ale znamená to také posílení pravomocí občanů, aby se sami účastnili národní obrany, což jim dává pocit, že jsou aktivními přispěvateli k bezpečnosti země.
+
+To počinje rano. U osnovnoj i srednjoj školi Jatkasaari u Helsinkiju sunčanog jesenskog jutra nema roditelja na vidiku. Djeca svih dobi hodaju ili voze bicikl u školu sama. Uče se o „sigurnom društvu“ kao jednoj od pet tema školske godine. Za mališane to znači sigurnosne šetnje po susjedstvu. Starija djeca uče prepoznati online dezinformacijske kampanje.
+
+Začíná to brzy. Na základní a střední škole Jatkasaari v Helsinkách slunečného podzimního rána není vidět žádný rodič. Děti všech věkových kategorii chodí pěšky nebo jezdí do školy samy. Jsou vyučovány o „bezpečné společnosti“ jako jednom z pěti témat školního roku. Pro nejmenší to znamená bezpečné procházky po okolí. Starší děti se učí identifikovat online dezinformační kampaně.
+
+Nakon diplome, mladi muškarci podliježu vojnom novačenju, a sve veći broj mladih žena dobrovoljno se pridružuje. U vojnoj bazi Santahamina izvan Helsinkija, tim od pet novaka koristi eksploziv da otvori vrata. Upitani bi li se borili ako Rusija napadne, nitko ne oklijeva.
+
+Po ukončení studia podléhají mladí muži vojenské branné povinnosti a stále více mladých žen se připojuje dobrovolně. Na vojenské základně Santahamina u Helsinek používá četa pěti rekrutů výbušniny, aby odpálila dveře. Na otázku, zda by bojovali v případě invaze Ruska, ani jeden neváhá.
+
+Istraživanje pokazuje da bi gotovo 80% Finaca uzelo oružje za obranu svoje zemlje — „čak i ako se ishod činio neizvjesnim“, kako kaže anketar, dodajući malo dodatnog sisu. Udio u većini europskih zemalja znatno je niži, a u Italiji iznosi samo 14%.
+
+Průzkum ukazuje, že téměř 80 % Finů vezme do rukou zbraně k obraně své země — „i kdyby výsledek vypadal nejistě“, jak uvádí tazatel, přidávajíc trochu extra sisu. Podíl ve většině evropských zemí je mnohem nižší a v Itálii činí pouze 14 %.
+
+Mnogi odrasli Finci u međuvremenu pohađaju višednevne sigurnosne tečajeve. Oni mogu zvučati jednako uzbudljivo kao i protupožarna vježba, ali zapravo su to događaji umrežavanja samo uz pozivnicu za elitu zemlje, promovirajući načine na koje oni i njihove organizacije mogu pomoći u očuvanju sigurnosti Finske.
+
+Mnoho dospělých Finů mezitím navštěvuje vícedenní bezpečnostní kurzy. Ty mohou znít stejně vzrušující jako požární cvičení, ale ve skutečnosti se jedná o networkingové akce pouze na pozvání pro elitu země, které propagují způsoby, jak mohou oni a jejich organizace pomoci udržet Finsko v bezpečí.
+
+Alumni se povremeno okupljaju na sastancima. Upitajte finske političke ili poslovne lidere jesu li bili na jednom, i oni obično odgovore potvrdno, s ponosnim osmijehom. Mogu vam dati broj svoje grupe; nizak broj znači da ste bili pozvani rano, što je prestižnije. To je lokalni ekvivalent spominjanja magisterija s otmjene poslovne škole.
+
+Absolventi se pravidelně scházejí na setkáních. Zeptejte se finských politických nebo obchodních lídrů, zda na nejakém byli, a obecně vám odpoví kladně, s hrdým úsměvem. Mohou vám sdělit číslo své skupiny; nízké číslo znamená, že jste byli pozváni brzy, což je prestižnější. Je to místní ekvivalent zmínky o magisterském titulu z luxusní obchodní školy.
+
+Kada je netko tako dobro pripremljen kao Finci, lako je prihvatiti prijetnju iz Rusije kao činjenicu života — koju, iako zabrinjavajuću, može se suočiti i prevladati. Većina drugih europskih zemalja, međutim, nije toliko odmakla. U posljednja dva mjeseca, dok su zračne luke u Danskoj i Njemačkoj bile testirane upadima dronova (ruskih? tko zna?), uzbuđeni političari pozivali su na obaranje uljeza.
+
+Když je člověk tak dobře připraven, jako Finové, je snadné přijmout hrozbu z Ruska jako fakt života — který, i když znepokojuje, lze čelit a překonat. Většina ostatních evropských zemí však není tak daleko. V posledních dvou měsících, kdy byla letiště v Dánsku a Německu testována vpády dronů (ruských? kdo ví?), rozčilení politici vyzývali ke sestřelení narušitelů.
+
+To se činilo Aleksandru Stubbu, predsjedniku Finske, neproduktivnim. „Mislim da je finska procjena nikada ne paničariti“, rekao je g. Stubb Charlemagneu. „Reagirati i djelovati kada je to potrebno.“ Što se tiče njegova vlastitog sisua, 57-godišnji predsjednik, opsjednut tjelesnom kondicijom, izgleda spreman osobno jurnuti u neprijateljske rovove, ako se za to ukaže potreba.
+
+Alexanderu Stubbovi, prezidentovi Finska, se to zdálo neproduktivní. „Myslím, že finské hodnocení je nikdy nepanikařit,“ řekl pan Stubb Charlemagne. „Reagovat a jednat, když je to nutné.“ Co se týče jeho vlastního sisu, 57-letý prezident, fanatik fyzické kondice, vypadá, že je připraven osobně vrazit do nepřátelských zákopů, pokud by to bylo nutné.
+
+Finski nacionalni karakter i povijesna iskustva ne mogu se jednostavno presaditi drugdje. To je natjeralo Charlemagnea da se zapita gdje bi se moglo pronaći njegovo sisu. Za pomoć se obratio Elisabet Lahti, autorici knjige o konceptu. „Ideja nije pronaći sisu, nije izgubljeno“, objašnjava. Preporučuje „prisjećanje trenutaka sisua u vašem životu i što vam je omogućilo prevladavanje poteškoća“.
+
+Finský národní charakter a historické zkušenosti nemohou být jen tak přeneseny jinam. To přimělo Charlemagne přemýšlet, kde by se mohlo najít jeho vlastní sisu. Pro pomoc se obrátil na Elisabet Lahti, autorku knihy o tomto konceptu. „Cílem není najít sisu, není ztraceno,“ vysvětluje. Doporučuje „vzpomínat na okamžiky sisu ve svém životě a na to, co vám umožnilo překonat obtíže“.
+
+Europska unija mogla bi se prisjetiti kako se sastavila tijekom prošlih hitnih slučajeva, poput krize eura, Brexita i pandemije covida-19, te koraka koje je poduzela (pomoć Ukrajini, sankcije Rusiji) kako bi se izborila iz trenutne krize.
+
+Evropská unie by si mohla vzpomenout, jak se vzpamatovala během minulých mimořádných událostí, jako je eurokrize, Brexit a pandemie covid-19, a kroky, které podnikla (pomoc Ukrajině, sankce proti Rusii), aby se vybojovala ze současné krize.
+
+Ostanite mirni i naučite pucati dok skijate
+
+Zachovejte klid a naučte se střílet na lyžích
+
+Međutim, to zahtijeva vjerovanje da postoji nešto za što se vrijedi boriti. Finci su domoljubni narod. „Izgradili smo ovaj narod u veličanstvenu državu u posljednjih sto godina,“ kaže gđa Lahti, naglašavajući da je to priča o uspjehu s jakim sustavom socijalne skrbi. Finska nije uvijek bila bogata i sigurna. „Nemoj se sramiti svoje siromaštva, budi miran, budi veseo, budi slobodan,“ opominje nacionalna pjesma „Maamme“ („Naša zemlja“), napisana 1800-ih godina.
+
+Nicméně, to vyžaduje věřit, že je za co bojovat. Finové jsou vlastenecký národ. „Postavili jsme tento národ za posledních sto let ve velkolepý stát,“ říká paní Lahti, zdůrazňujíc, že je to příběh úspěchu se silným systémem sociálního zabezpečení. Finsko nebylo vždy bohaté a bezpečné. „Nestyd se za svou chudobu, buď klidný, radostný, buď svobodný,“ napomíná národní báseň „Maamme“ (Naše země), napsaná v 19. století.
+
+Finci više nisu siromašni (iako su i dalje prilično sramežljivi), ali su manje samozadovoljni svojim bogatstvom od zemalja dalje na zapadu. Za ostale Europljane, kultiviranje sisua značit će proslavljanje priče o tome kako su postali prosperitetni i sigurni. Ako tako žele i ostati, imaju puno posla. ■
+
+Finové již nejsou chudí (ačkoli jsou stále poměrně plaší), ale jsou méně samolibí ve svém bohatství než země dále na západ. Pro ostatní Evropany bude kultivování sisu znamenat oslavování příběhu o tom, jak se stali prosperujícími a bezpečnými. Pokud takovými chtějí zůstat, mají hodně co dělat. ■
