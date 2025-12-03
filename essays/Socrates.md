@@ -281,3 +281,60 @@ und dem inneren Kompass zu folgen — auch gegen Widerstände.
 Sein Leben und Sterben zeigen:
 Philosophie ist kein Luxus. Sie ist eine Haltung.
 Eine Haltung, die das eigene Dasein verwandeln kann.
+
+
+
+| **Deutsch** | **English** |
+|-------------|-------------|
+| Sokrates wurde um 470 v. Chr. im athenischen Demos Alopeke geboren. Sein Vater war Steinmetz, seine Mutter Hebamme. Trotz bescheidener Herkunft erhielt er die übliche Ausbildung eines jungen Bürgers und zeigte früh eine Neigung zum Denken und Fragen. | Socrates was born around 470 BC in the Athenian deme of Alopece. His father was a stonemason, his mother a midwife. Despite humble origins, he received the typical education of a young citizen and showed an early inclination toward thinking and questioning. |
+| Während des Peloponnesischen Krieges diente er als Hoplit und bewies, wie antike Quellen berichten, bemerkenswerte Tapferkeit. Doch statt politischer Karriere wählte er ein einfaches Leben und widmete sich dem Gespräch auf den Straßen Athens. | During the Peloponnesian War he served as a hoplite and, according to ancient sources, demonstrated remarkable courage. Yet instead of seeking political advancement, he chose a simple life and devoted himself to conversation in the streets of Athens. |
+| Da Sokrates keine eigenen Schriften hinterließ, kennen wir ihn nur aus zweiter Hand — vor allem durch Platon, Xenophon und die satirische Darstellung des Aristophanes. | Since Socrates left no writings of his own, we know him only second-hand — primarily through Plato, Xenophon, and the satirical portrayal by Aristophanes. |
+
+| **Deutsch** | **English** |
+|-------------|-------------|
+| Sokrates verlagerte den Schwerpunkt der Philosophie von der Natur hin zum Menschen. Statt über den Ursprung des Kosmos zu spekulieren, fragte er: *Was ist Tugend? Was ist Gerechtigkeit? Wie soll man leben?* | Socrates shifted the focus of philosophy from nature to the human being. Instead of speculating about the origin of the cosmos, he asked: *What is virtue? What is justice? How should one live?* |
+| Sein Werkzeug war der Dialog: eine fragende, prüfende, klärende Methode, die später als sokratischer Elenchos bezeichnet wurde. Sie sollte Widersprüche aufdecken und wahre Einsicht ermöglichen. | His tool was dialogue: a questioning, examining, clarifying method later called the Socratic elenchus. Its purpose was to uncover contradictions and make genuine insight possible. |
+| Berühmt ist seine paradoxe Einsicht: **„Ich weiß, dass ich nichts weiß.“** Gemeint ist die Erkenntnis der eigenen Grenzen — der erste Schritt zu echter Weisheit. | Famous is his paradoxical insight: **“I know that I know nothing.”** What he meant was an awareness of one's limits — the first step toward true wisdom. |
+
+
+| **Deutsch** | **English** |
+|-------------|-------------|
+| Die Originalität des Sokrates zeigt sich vor allem in der Verlagerung philosophischer Aufmerksamkeit. Während frühere Denker die Natur des Kosmos untersuchten, richtete er seine Fragen auf den Menschen: auf Tugend, Gerechtigkeit und das gute Leben. | Socrates’ originality lies especially in shifting philosophical attention. Whereas earlier thinkers examined the nature of the cosmos, he directed his questions toward the human being: toward virtue, justice, and the good life. |
+| Seine Methode war der Dialog – ein fragender, prüfender Prozess, der darauf abzielte, Annahmen zu hinterfragen und Widersprüche sichtbar zu machen. Dieser sogenannte Elenchos diente nicht der bloßen Widerlegung, sondern der Läuterung des Denkens. | His method was dialogue—a questioning, examining process aimed at challenging assumptions and bringing contradictions to light. This so-called elenchus served not merely to refute but to purify and clarify thought. |
+| Berühmt ist seine paradoxe Erkenntnis: **„Ich weiß, dass ich nichts weiß.“** Damit meinte er nicht Unwissenheit als Mangel, sondern das Bewusstsein der eigenen Begrenztheit – den Ausgangspunkt echter Weisheit. | Famous is his paradoxical insight: **“I know that I know nothing.”** By this he did not mean ignorance as a deficiency, but an awareness of one’s limitations—the starting point of genuine wisdom. |
+| Für Sokrates war Philosophie eine Form der Lebenspraxis. Sie bestand in der Pflege der Seele, in der Selbstprüfung und im Streben nach innerer Wahrhaftigkeit. Wissen ohne Tugend war für ihn wertlos. | For Socrates, philosophy was a way of life. It consisted in caring for the soul, in self-examination, and in striving for inner truthfulness. Knowledge without virtue, for him, was worthless. |
+
+
+
+| **Deutsch** | **English** |
+|-------------|-------------|
+| Sokrates’ Einfluss ist gewaltig, obwohl er nichts schrieb. Durch Platon wurde er zum Ausgangspunkt der europäischen Philosophie. | Socrates’ influence is immense despite his never writing a line. Through Plato he became the starting point of European philosophy. |
+| Er verstand Philosophie als Lebenspraxis — die Pflege der Seele, das Streben nach Tugend, die Prüfung des eigenen Lebens. | He understood philosophy as a way of life — the care of the soul, the pursuit of virtue, and the examination of one's life. |
+| Der sokratische Dialog prägt bis heute Bildung, Wissenschaft und öffentliche Debatten: Wahrheit entsteht im Austausch, nicht im Dogma. | The Socratic dialogue still shapes education, scholarship, and public debate: truth emerges through exchange, not dogma. |
+
+| **Deutsch** | **English** |
+|-------------|-------------|
+| Im Jahr 399 v. Chr. wurde Sokrates angeklagt: Er soll die Jugend verdorben und neue Götter eingeführt haben. Hinter diesen Vorwürfen stand jedoch vor allem das Unbehagen über seine unermüdliche Kritik an der Selbstgewissheit vieler Athener. | In 399 BC Socrates was indicted: he was accused of corrupting the youth and introducing new gods. Behind these charges, however, lay a deeper discomfort with his relentless questioning of the complacency of many Athenians. |
+| Sokrates verteidigte sich mit Klarheit und ohne Schmeichelei. Er erklärte, dass er sich als eine Art „Gadfly“ verstehe – eine Bremse, die die Stadt daran erinnere, moralisch wachsam zu bleiben. | Socrates defended himself with clarity and without flattery. He explained that he saw himself as a kind of “gadfly”—a necessary irritant that reminded the city to remain morally awake. |
+| Die Geschworenen verurteilten ihn knapp. Obwohl Freunde ihm zur Flucht verhelfen wollten, lehnte er ab: Die Missachtung der Gesetze, selbst wenn sie ihn ungerecht trafen, wäre ein Verrat an seinen eigenen Prinzipien. | The jurors convicted him by a narrow margin. Although his friends offered to help him escape, he refused: to disregard the laws, even if applied unjustly to him, would be a betrayal of his own principles. |
+| Er akzeptierte den Tod durch den Schierlingsbecher. In den Berichten seiner Schüler erscheint er gefasst, ruhig und überzeugt, dass ein Leben ohne philosophische Prüfung nicht lebenswert sei. | He accepted death by drinking hemlock. In the accounts of his students he appears composed, calm, and convinced that a life without philosophical examination is not worth living. |
+
+
+| **Deutsch** | **English** |
+|-------------|-------------|
+| Sokrates war ein Meister des Fragens, ein Unruhestifter im besten Sinne, ein Mensch, der Mut zur inneren Wahrheit hatte. | Socrates was a master of questioning, a troublemaker in the best sense, a person who possessed the courage of inner truth. |
+| Sein berühmter Satz **„Das ungeprüfte Leben ist nicht lebenswert“** bleibt ein zeitloser Aufruf zur Selbstprüfung und geistigen Freiheit. | His famous statement **“The unexamined life is not worth living”** remains a timeless call for self-examination and intellectual freedom. |
+
+
+| **Deutsch** | **English** |
+|-------------|-------------|
+| Obwohl Sokrates keine Schriften verfasste, prägt er die Geschichte des Denkens tiefgreifend. Durch Platon wurde er zum Ausgangspunkt der abendländischen Philosophie. | Although Socrates wrote nothing himself, he profoundly shaped the history of thought. Through Plato he became the starting point of Western philosophy. |
+| Seine Auffassung, dass Philosophie eine Lebensform sei, beeinflusste nicht nur die antike Ethik, sondern auch spätere Traditionen – von den Stoikern über die christliche Mystik bis zur modernen Existenzphilosophie. | His view that philosophy is a way of life influenced not only ancient ethics but also later traditions—from the Stoics to Christian mysticism to modern existentialism. |
+| Der sokratische Dialog – das offene Gespräch, das gemeinsame Suchen – ist bis heute Grundlage wissenschaftlichen Denkens, pädagogischer Methoden und demokratischer Debatten. | The Socratic dialogue—open conversation and shared inquiry—remains a foundation of scientific thinking, educational methods, and democratic debate. |
+| Sokrates steht symbolisch für den Mut zur Wahrheit. Sein Tod erinnert daran, dass Integrität und geistige Freiheit einen Preis haben, den jedoch manche bereit sind zu zahlen. | Socrates stands symbolically for the courage to pursue truth. His death reminds us that integrity and intellectual freedom have a cost—one that some are willing to pay. |
+
+| **Deutsch** | **English** |
+|-------------|-------------|
+| Sokrates war mehr als ein Philosoph: Er war ein Suchender, ein unbequemer Fragender, ein Mensch, der die Wahrheit höher stellte als den eigenen Vorteil. | Socrates was more than a philosopher: he was a seeker, an unsettling questioner, a person who valued truth more highly than personal advantage. |
+| Sein berühmter Satz **„Das ungeprüfte Leben ist nicht lebenswert“** ist kein Dogma, sondern eine Einladung: die Einladung, mutig zu denken, ehrlich zu leben und sich nicht mit bloßen Meinungen zufriedenzugeben. | His famous statement **“The unexamined life is not worth living”** is not a dogma but an invitation: an invitation to think courageously, to live honestly, and not to be satisfied with mere opinions. |
+| In einer Welt voller Ablenkungen bleibt die sokratische Forderung aktuell: das eigene Leben, seine Werte und Handlungen zu prüfen – und sich der Wahrheit zu stellen, wo immer sie uns begegnet. | In a world full of distractions, the Socratic demand remains relevant: to examine one’s life, values, and actions—and to face truth wherever we encounter it. |
