@@ -12,7 +12,8 @@ The last train home had departed, and with it, the illusion that I knew where "h
 </div>
 
 </div>
-
+<br><br>
+<br><br>
 <div style="display: flex; gap: 20px;">
 
 <div style="flex: 1;">
@@ -27,7 +28,8 @@ The last train home had departed, and with it, the illusion that I knew where "h
 </div>
 
 </div>
-
+<br><br>
+<br><br>
 <div style="display: flex; gap: 20px;">
 
 <div style="flex: 1;">
@@ -42,7 +44,8 @@ The last train home had departed, and with it, the illusion that I knew where "h
 </div>
 
 </div>
-
+<br><br>
+<br><br>
 <div style="display: flex; gap: 20px;">
 
 <div style="flex: 1;">
@@ -57,7 +60,8 @@ Poslední vlak se rozplynul v noci a nechal mě samotného s ozvěnou mých vlas
 </div>
 
 </div>
-
+<br><br>
+<br><br>
 <div style="display: flex; gap: 20px;">
 
 <div style="flex: 1;">
