@@ -1,12 +1,12 @@
 <div style="display: flex; gap: 20px;">
 
-<div style="flex: 1;">
+<div style="font-size: 16px; line-height: 1.6;">
 **German:**<br>
 Der letzte Zug nach Hause war abgefahren, und mit ihm die Illusion, dass ich wüsste, wo "zu Hause" eigentlich lag. Ich stand auf dem verlassenen Bahnsteig, und der Nebel verschluckte die Geräusche der Stadt, bis nur noch mein eigener Atem zu hören war. Es war ein merkwürdiger Trost, diese Stille. Jahre hatte ich damit verbracht, vor mir selbst davonzulaufen – von Erwartungen, von enttäuschten Hoffnungen, von der einfachen, unbequemen Frage, wer ich sein wollte. Jetzt, in der klammen Kühle der Nacht, war ich nirgendwo und überall. Die Reise war immer nur ein Aufschub gewesen. Vielleicht, dachte ich, während die Straßenlaternen sich in feuchten Kreisen im Pflaster spiegelten, ist Ankunft nicht ein Ort, sondern ein Moment, in dem man aufhört, wegzulaufen. Ich zog den Mantelkragen enger und ging langsam in den Nebel hinein, ohne Ziel, aber zum ersten Mal mit einer Art von Frieden.
 
 </div>
 <br><br>
-<div style="flex: 1;">
+<div style="font-size: 16px; line-height: 1.6;">
 **English:**<br>
 The last train home had departed, and with it, the illusion that I knew where "home" actually was. I stood on the deserted platform, and the fog swallowed the sounds of the city until all I could hear was my own breath. It was a strange comfort, this silence. I had spent years running from myself—from expectations, from disappointed hopes, from the simple, uncomfortable question of who I wanted to be. Now, in the damp chill of the night, I was nowhere and everywhere. The journey had always just been a postponement. Perhaps, I thought, as the streetlights reflected in wet circles on the pavement, arrival is not a place but a moment when you stop running away. I pulled my coat collar tighter and walked slowly into the fog, without a destination, but for the first time with a kind of peace.
 </div>
