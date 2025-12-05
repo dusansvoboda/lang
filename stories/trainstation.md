@@ -1,3 +1,7 @@
+::: columns
+
+::: column
+
 <div style="display: flex; gap: 20px;">
 
 <div style="font-size: 16px; line-height: 1.6;">
@@ -12,6 +16,9 @@ The last train home had departed, and with it, the illusion that I knew where "h
 </div>
 
 </div>
+:::
+
+::: column
 <br><br>
 <br><br>
 <div style="display: flex; gap: 20px;">
@@ -28,6 +35,9 @@ The last train home had departed, and with it, the illusion that I knew where "h
 </div>
 
 </div>
+:::
+
+::: column
 <br><br>
 <br><br>
 <div style="display: flex; gap: 20px;">
@@ -44,6 +54,9 @@ The last train home had departed, and with it, the illusion that I knew where "h
 </div>
 
 </div>
+:::
+
+::: column
 <br><br>
 <br><br>
 <div style="display: flex; gap: 20px;">
@@ -62,6 +75,9 @@ Poslední vlak se rozplynul v noci a nechal mě samotného s ozvěnou mých vlas
 </div>
 <br><br>
 <br><br>
+:::
+
+::: column
 <div style="display: flex; gap: 20px;">
 
 <div style="flex: 1;">
