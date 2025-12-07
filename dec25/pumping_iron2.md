@@ -26,4 +26,23 @@ Perfect! I'll format it exactly like your example with clean table structure tha
 
 ---
 
-Would you like me to continue with the other language pairs (Russian-Czech, German-English, Italian-English, Swiss Zurich German-German, Croatian-Czech) in this exact same format?
+# 🇫🇷 French — 🇬🇧 English (Side-by-Side)
+
+<p style="font-size: 1.1em; font-weight: 600;">| <strong>Français</strong> | <strong>English (Original)</strong> |</p>
+
+| **Français** | **English (Original)** |
+|--------------|------------------------|
+| **Europe | Pomper du fer** | **Europe | Pumping iron** |
+
+
+# 🇫🇷 French — 🇬🇧 English (Side-by-Side)
+
+| **Français** | **English (Original)** |
+|--------------|------------------------|
+
+## Introduction
+| **Europe | Pomper du fer** | **Europe | Pumping iron** |
+| L'Europe se lance dans une énorme frénésie de dépenses militaires | Europe is going on a huge military spending spree |
+
+## Current Situation
+| Les gouvernements européens sont confrontés à... | European governments face a defence crunch... |
