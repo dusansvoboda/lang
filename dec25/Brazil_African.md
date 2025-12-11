@@ -50,6 +50,41 @@
 | В 2024 году **83% людей, убитых полицией**, были темнокожими. Эскарлате спрашивает: «**Что может изменить один-единственный праздник?**» | V roce 2024 tvořili lidé tmavší pleti **83 % obětí brazilské policie**, jedné z nejsmrtelnějších na světě. A Escarlate se ptá: **„Kolik může jeden státní svátek opravdu změnit?“** |
 
 
+
+# 🇩🇪 Deutsch (A2–B1) — 🇬🇧 English (Original)
+
+| **Deutsch (A2–B1)** | **English (Original)** |
+|---------------------|------------------------|
+| Im November gibt es in vielen Ländern besondere Traditionen: In Mexiko bringt man Ringelblumen zu den Toten, in Großbritannien gibt es Schweigeminuten für gefallene Soldaten, und in den USA feiert man Thanksgiving mit einem Truthahn. | November is marked by offerings of marigolds to the dead in Mexico, minutes of silence to honour fallen soldiers in Britain and turkey feasts to give thanks in the United States. |
+| In Brasilien war der November früher ein ganz normaler Monat. | In Brazil it used to be just another month. |
+| Aber seit letztem Jahr feiern die Menschen den „Monat des Schwarzen Bewusstseins“, mit einem neuen Feiertag am 20. November. | Not any more: since last year Brazilians have turned it into “Black Consciousness Month”, its festivities reaching a peak with a new federal public holiday on November 20th. |
+| An diesem Tag wurde im Jahr 1695 Zumbi dos Palmares gefangen, geköpft und sein Kopf öffentlich gezeigt. | On that day in 1695 Portuguese colonists captured Zumbi dos Palmares, decapitated him and displayed his head in a public square. |
+| Er war der Anführer der größten Gemeinschaft von geflohenen Sklaven. | His crime was to have led the largest-ever settlement for runaway slaves. |
+| Heute, 300 Jahre später, interessieren sich viele Brasilianer stärker für ihre afrikanischen Wurzeln. | Now, 300 years after Zumbi’s murder, Brazilians are increasingly interested in their country’s African roots. |
+| Dieses Interesse sieht man überall: Die Zahl der Menschen, die afro-brasilianische Religionen wie Candomblé oder Umbanda praktizieren, ist stark gestiegen. | Signs of this growing interest are everywhere. Between 2010 and 2022 the number of people who claim to practise candomblé and umbanda… tripled. |
+| In Rio besuchen viele Touristen „Klein Afrika“, eine bunte Nachbarschaft, die als Geburtsort des Sambas gilt. | In 2023 more tourists in Rio… visited “Little Africa”… than went to the statue of Christ the Redeemer or Sugarloaf Mountain. |
+| Immer mehr Brasilianer sagen auch, dass sie schwarz oder gemischt sind. | Most strikingly, Brazilians have become keener to assert their African heritage. |
+| Bei der Volkszählung 2022 identifizierten sich zum ersten Mal mehr Menschen als schwarz oder braun als weiß. | …for the first time more people identified themselves as brown or black than white. |
+| Das kommt nicht nur von der Demografie, sondern auch davon, dass Schwarzsein weniger stigmatisiert ist. | The change is not down to demography alone, but also to decreasing stigma around being black. |
+| Brasilien hat mehr afrikanische Sklaven empfangen als jedes andere Land — rund 5 Millionen. | …some 5m disembarked in Brazil, compared with 400,000 in the United States. |
+| Viele Teile der brasilianischen Wirtschaft basierten früher auf Sklavenarbeit. | Each of Brazil’s economic booms… depended on slave labour. |
+| Lange wurde die Sklavereigeschichte ignoriert. | For a long time slave histories were overlooked… |
+| Beim Umbau des Hafens wurde der Valongo-Kai entdeckt, wo über eine Million Afrikaner ankamen. | …workers stumbled upon… Valongo Wharf, a dock used to disembark a million Africans. |
+| Auch ein Massengrab mit den Überresten vieler Sklaven wurde gefunden. | …a mass grave… containing the remains of tens of thousands of slaves. |
+| Viele Brasilianer sagten früher, Brasilien sei ein Land ohne große Rassenkonflikte. | For decades many Brazilians glossed over the past… pushed the idea that Brazil was a land of racial harmony. |
+| Neue Forschung zeigt jedoch, dass es viel Gewalt und Ungleichheit gab. | A mixture of better historical data and activism has chipped away at that narrative. |
+| Eine große genetische Studie zeigte, dass europäische Männer und afrikanische oder indigene Frauen oft nicht freiwillig Nachkommen hatten. | …71% of Y chromosomes came from European ancestry, whereas… mitochondrial dna came from African and indigenous ancestry. |
+| Präsident Lula unterstützt starke Beziehungen zu Afrika. | …they found a new ally in President Lula… who took an unusual interest in Africa. |
+| Er hat viele Botschaften eröffnet und den Handel mit Afrika stark erhöht. | …he opened 19 embassies in Africa and visited the continent more than any other. |
+| Schulen müssen heute afro-brasilianische Geschichte unterrichten. | New laws instructed schools to teach Afro-Brazilian history… |
+| Viele Nachfahren geflohener Sklaven erhielten Landrechte. | …and granted land titles to quilombolas… |
+| Lula versucht erneut, die Beziehungen zu stärken, besonders in der Landwirtschaft. | Lula’s return… has rekindled relations… pitching Brazilian research into drought-resistant crops… |
+| Afrika zeigt großes Interesse an brasilianischer Landwirtschaftstechnologie. | …so many requests for partnerships that “we can’t attend to them all”. |
+| In Brasilien kritisieren viele, dass soziale Ungleichheit vor allem Schwarze betrifft. | Back in Brazil, the interest… is seen as a reason to push for deeper reforms. |
+| Schwarze Brasilianer verdienen weniger, haben weniger Bildung und werden häufiger Opfer von Polizeigewalt. | …black workers earned 60% of whites… darker-skinned people made up 83% of those killed by police. |
+| Ana-Paula sagt: „Wie viel kann ein einziger Feiertag wirklich ändern?“ | Ms Escarlate wonders: “How much can one national holiday really change things?” |
+
+
 # 🇩🇪 Deutsch — 🇬🇧 English (Side-by-Side)
 
 | **Deutsch** | **English (Original)** |
